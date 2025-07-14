@@ -6,7 +6,7 @@ I enjoy solving complex challenges through **competitive programming** and bring
 
 Currently, I’m exploring new technologies, sharpening my skills, and looking for **internship opportunities** where I can grow, contribute, and make an impact.
 
-**Always open to new connections, collaborations, and learning! 🚀**
+**Always open to new connections, collaborations, and learning!**
 
 ---
 
